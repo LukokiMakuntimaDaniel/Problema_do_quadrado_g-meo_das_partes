@@ -1,0 +1,1 @@
+# Problema_do_quadrado_g-meo_das_partes
